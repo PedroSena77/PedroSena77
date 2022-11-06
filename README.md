@@ -5,7 +5,7 @@
 - 📫 How to reach me: e-mail me! pedro_sena58@hotmail.com
 
 
-- In the currently time i'm working with the development team from Hotmart, at the subscriptions team!
+
 - In the future, I hope that I'll be working as a Product Manager or Product Owner. 
 
 <!---
